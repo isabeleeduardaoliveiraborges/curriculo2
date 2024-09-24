@@ -1,1 +1,1 @@
-# http://profandersonvanin.github.io/MeuCurriculo_TurmaA
+https://isabeleeduardaoliveiraborges.github.io/curriculo2
